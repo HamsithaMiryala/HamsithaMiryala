@@ -1,6 +1,7 @@
 - Hi, I’m @HamsithaMiryala
-- I’m interested in in human resources, people analytics, and business analytics.
+- I’m a recent graduate with a Master's in Management from Njit
 - I’m looking to collaborate on to HR analytics, recruitment strategies, and business analysis.
+- 
 - How to reach me [LinkedIn](https://www.linkedin.com/in/hamsim/) or via email at hm548@njit.edu.
 - Pronouns: She/Her
 
